@@ -2,6 +2,9 @@
 title: "Tiên học lễ, hậu học văn"
 date: 2025-05-11
 ---
+
+![NTU-background](images/NTU-School-Cover.png)
+
 Tuần vừa rồi là một tuần khá vui với bản thân tôi. Thế nên tôi dành ra ít phút ngồi viết chút cho có tí kỉ niệm.
 
 Tốt nghiệp tại VinUniversity và may mắn được nhận vào làm nghiên cứu sinh tại Nanyang Technological University ở Singapore, tôi đáng ra nên tự hào về những nỗ lực của chính bản thân mình. Nhưng thật sự là không. Những suy nghĩ về việc bản thân mình chưa đủ tốt tràn ngập trong đầu một đứa nhỏ chập chững làm người lớn với đầu tóc lớt phớt bạc.
