@@ -3,7 +3,7 @@ title: "Tiên học lễ, hậu học văn"
 date: 2025-05-11
 ---
 
-![NTU-background](https://github.com/Riezmann75/my-journey-to-wisdom/blob/f55f59eeeed416978adc86da7597b50b5c886386/images/NTU-School-Cover.png)
+![NTU-background](https://github.com/Riezmann75/my-journey-to-wisdom/blob/f55f59eeeed416978adc86da7597b50b5c886386/images/NTU-School-Cover.png?raw=true)
 
 Tuần vừa rồi là một tuần khá vui với bản thân tôi. Thế nên tôi dành ra ít phút ngồi viết chút cho có tí kỉ niệm.
 
