@@ -2,6 +2,9 @@
 title: Nghĩ nhiều phải nghĩ thông
 date: 2025-05-17
 ---
+
+![pepe ngồi cạnh mưa](https://github.com/Riezmann75/my-journey-to-wisdom/blob/main/images/pepe-sit-next-window-in-rain.jpg?raw=true)
+
 Cuối tuần lên trường gặp đúng hôm trời mưa hơi chán. Tôi xếp chân ngồi ban công nghe tiếng mưa xem tí triết cho nó suy tư rồi lại lật laptop ngồi dài dòng về một chủ đề mà tôi nghĩ nó cũng thiết thực. 
 
 Sáng nay tôi mở phải cái video [này](https://www.youtube.com/watch?v=odPnVhT_YAc) nói về hiện tượng một người có xu hướng tin vào những thứ như "bằng cấp" thay vì tin vào những lời giải thích xác đáng hơn. Có lẽ vấn đề này nó càng quan trọng hơn khi đặt trong ngữ cảnh rằng những video có nội dung ngắn càng ngày càng dễ xem, hấp dẫn hơn những nội dung dài có giải thích cặn kẽ. Cá nhân tôi nghĩ nội dung ngắn hay dài không quan trọng bằng việc bạn nắm được gì sau khi tiếp nhận nó. Nội dung ngắn về cơ bản cho người tiếp nhận ảo giác là mình vừa tiếp thu nhưng thực tế là không, trong khi nội dung dài thì mất nhiều thời gian để tiêu thụ. Thôi để mọi người tự chọn cho bản thân những gì họ thấy phù hợp.
