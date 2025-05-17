@@ -4,11 +4,7 @@ date: 2025-05-17
 ---
 Cuối tuần lên trường gặp đúng hôm trời mưa hơi chán. Tôi xếp chân ngồi ban công nghe tiếng mưa xem tí triết cho nó suy tư rồi lại lật laptop ngồi dài dòng về một chủ đề mà tôi nghĩ nó cũng thiết thực. 
 
-Sáng nay tôi mở phải cái video này : 
-
-![We need to talk about pseudo-intellectuals](https://www.youtube.com/watch?v=odPnVhT_YAc) 
-
-Video này nói về hiện tượng một người có xu hướng tin vào những thứ như "bằng cấp" thay vì tin vào những lời giải thích xác đáng hơn. Có lẽ vấn đề này nó càng quang trọng hơn khi đặt trong ngữ cảnh rằng những video có nội dung ngắn càng ngày càng dễ xem, hấp dẫn hơn những nội dung dài có giải thích cặn kẽ. Cá nhân tôi nghĩ nội dung ngắn hay dài không quan trọng bằng việc bạn nắm được gì sau khi tiếp nhận nó. Nội dung ngắn về cơ bản cho người tiếp nhận ảo giác là mình vừa tiếp thu nhưng thực tế là không, trong khi nội dung dài thì mất nhiều thời gian để tiêu thụ. Thôi để mọi người tự chọn cho bản thân những gì họ thấy phù hợp.
+Sáng nay tôi mở phải cái video [này](https://www.youtube.com/watch?v=odPnVhT_YAc) nói về hiện tượng một người có xu hướng tin vào những thứ như "bằng cấp" thay vì tin vào những lời giải thích xác đáng hơn. Có lẽ vấn đề này nó càng quang trọng hơn khi đặt trong ngữ cảnh rằng những video có nội dung ngắn càng ngày càng dễ xem, hấp dẫn hơn những nội dung dài có giải thích cặn kẽ. Cá nhân tôi nghĩ nội dung ngắn hay dài không quan trọng bằng việc bạn nắm được gì sau khi tiếp nhận nó. Nội dung ngắn về cơ bản cho người tiếp nhận ảo giác là mình vừa tiếp thu nhưng thực tế là không, trong khi nội dung dài thì mất nhiều thời gian để tiêu thụ. Thôi để mọi người tự chọn cho bản thân những gì họ thấy phù hợp.
 
 Hồi xửa tôi thấy có hai khái niệm mà tôi lụm lặt đâu đó trên mạng: "Philia Sophia" (tình yêu với sự thông thái) và "Philia Nikia" (tình yêu với chiến thắng). Gần đây tôi lại thấy nó ở trong mấy cái video ngắn mà tôi xem, ngẫm thấy cũng hay nên lôi ra làm nội dung để viết. Về cơ bản có hai kiểu phản ứng sẽ xảy ra nếu hai quan điểm va chạm. Đa phần phản ứng chung mà bản năng sẽ chọn đó là "Philia Nikia", cãi cho thắng. Nhưng tôi không phải là người giỏi trong những cuộc tranh luận, và nhiều khi tôi còn thấy khó thở với những lần tôi buộc phải đứng lên tranh luận. Tôi thấy phiền khi người ta tìm mọi cách để chứng mình người ta đúng trong khi cái tôi cần là tại sao lại sai.
 
